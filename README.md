@@ -9,4 +9,3 @@
 <p align="center">⠀ ࣪⠀⠀𓏵⠀⠀ ׅ　 𝙄𝙫𝙖𝙣 ⠀ ׅ⠀⠀ཐི༏ཋྀ ࣪⠀
 ⠀<p align="center">    ⠀　⠀♰⠀ 𓈒 ⠀𝗁𝖾  ﾉ⠀𝗁𝗂𝗆 ✙
 ⠀⠀⠀⠀<p align="center">  𝔅𝔦𝔱𝔢 𝔐𝔢
-<p align="center"> [Atabook](https://gayandhorny.atabook.org)  | [Rentry](https://rentry.co/Dantemustcry)
