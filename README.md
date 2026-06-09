@@ -8,4 +8,4 @@
 </p>
 <p align="center">⠀ ࣪⠀⠀𓏵⠀⠀ ׅ　 𝙄𝙫𝙖𝙣 ⠀ ׅ⠀⠀ཐི༏ཋྀ ࣪⠀
 ⠀<p align="center">    ⠀　⠀♰⠀ 𓈒 ⠀𝐇𝐞  ﾉ⠀𝗁𝖾𝗋 ✙
-⠀⠀⠀⠀<p align="center">  𝔅𝔦𝔱𝔢 𝔐𝔢
+⠀⠀⠀⠀<p align="center">  “ 𝔜𝔬𝔲 𝔞𝔯𝔢, 𝔪𝔶 𝔥𝔢𝔞𝔳𝔢𝔫 𝔱𝔬𝔫𝔦𝔤𝔥𝔱 ˶
