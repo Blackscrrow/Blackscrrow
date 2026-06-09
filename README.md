@@ -4,7 +4,7 @@
 </p>
 
 <p align="center">
-  <img src="https://cdn.discordapp.com/attachments/885331389908672573/1512540789828489306/Untitled101_20260605123638.png?ex=6a25c861&is=6a2476e1&hm=9d5655b4c7fadee8c747b0f5fa77bc875aead12fdd35494b15bc9750d6f0809e&" alt="Centered Image" width="550">
+  <img src="https://us-east.storage.cloudconvert.com/tasks/0e24d799-4a33-49e2-8df9-13b10bcd4e33/ivti.png?X-Amz-Algorithm=AWS4-HMAC-SHA256&X-Amz-Content-Sha256=UNSIGNED-PAYLOAD&X-Amz-Credential=cloudconvert-production%2F20260609%2Fva%2Fs3%2Faws4_request&X-Amz-Date=20260609T231712Z&X-Amz-Expires=86400&X-Amz-Signature=ea44c7e604d55fe2feb0fb8b6c039a81752e55814a648e771375a7fdb5d3cdb2&X-Amz-SignedHeaders=host&response-content-disposition=inline%3B%20filename%3D%22ivti.png%22&response-content-type=image%2Fpng&x-id=GetObject" alt="Centered Image" width="550">
 </p>
 <p align="center">⠀ ࣪⠀⠀𓏵⠀⠀ ׅ　 𝙄𝙫𝙖𝙣 ⠀ ׅ⠀⠀ཐི༏ཋྀ ࣪⠀
 ⠀<p align="center">    ⠀　⠀♰⠀ 𓈒 ⠀𝐇𝐞  ﾉ⠀𝗁𝖾𝗋 ✙
