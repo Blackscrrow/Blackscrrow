@@ -1,6 +1,6 @@
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=Blackscrrow&base=897089708970&color=5C6396&plastic&label=Precum+babies" alt="Viewer Counter" />
+  <img src="https://komarev.com/ghpvc/?username=Blackscrrow&base=897089708970&color=733d39&plastic&label=Precum+babies" alt="Viewer Counter" />
 </p>
 
 
