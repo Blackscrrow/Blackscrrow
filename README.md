@@ -11,3 +11,9 @@
 ⠀<p align="center">    ⠀　⠀♰⠀ 𓈒 ⠀𝐇𝐞  ﾉ⠀𝗁𝗂𝗆 ✙
 ⠀⠀⠀⠀<p align="center">  “ 𝔜𝔬𝔲 𝔞𝔯𝔢, 𝔪𝔶 𝔥𝔢𝔞𝔳𝔢𝔫 𝔱𝔬𝔫𝔦𝔤𝔥𝔱 ˶
 <p align="center">     ᵖᶠᵖ ; @ᵈʳⁱᵉᵈᵖᵒᶜᵏᵉᵗˢ
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31tv4gs42hlcd2y7mz2oknspbfia&cover_image=true&theme=natemoo-re&show_offline=false&background_color=2f1d1d&interchange=false&profanity=false&hide_remaster=false&bar_color=a46060&bar_color_cover=false">
+  </a>
+</p>
