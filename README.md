@@ -5,7 +5,7 @@
 
 
 <p align="center">
-  <img src="https://cdn.discordapp.com/attachments/885331389908672573/1521129947551498360/Untitled149_20260629052647.png?ex=6a5d6b68&is=6a5c19e8&hm=501836d05031115ba00ec4bc7beb14bb4ad4fd08584167e9631c0f8728a0ccaa&" alt="Centered Image" width="550">
+  <a href="https://ibb.co/yK6Nxz3"><img src="https://i.ibb.co/KB258t1/Untitled149-20260803124422.png" alt="Untitled149-20260803124422" border="0"></a>
 </p>
 <p align="center">⠀ ࣪⠀⠀𓏵⠀⠀ ׅ　 𝙄𝙫𝙖𝙣 ⠀ ׅ⠀⠀ཐི༏ཋྀ ࣪⠀
 ⠀<p align="center">    ⠀　⠀♰⠀ 𓈒 ⠀𝐇𝐞  ﾉ⠀𝗁𝗂𝗆 ✙
