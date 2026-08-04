@@ -7,7 +7,7 @@
 <p align="center">
   <a href="https://ibb.co/yK6Nxz3"><img src="https://i.ibb.co/KB258t1/Untitled149-20260803124422.png" alt="Untitled149-20260803124422" border="0"></a>
 </p>
-<p align="center">⠀ ࣪⠀⠀𓏵⠀⠀ ׅ　 𝙄𝙫𝙖𝙣 ⠀ ׅ⠀⠀ཐི༏ཋྀ ࣪⠀
+<p align="center">⠀ ࣪⠀⠀𓏵⠀⠀ ׅ　 𝙀𝙧𝙤𝙨 ⠀ ׅ⠀⠀ཐི༏ཋྀ ࣪⠀
 ⠀<p align="center">    ⠀　⠀♰⠀ 𓈒 ⠀𝐇𝐞  ﾉ⠀𝗁𝗂𝗆 ✙
 ⠀⠀⠀⠀<p align="center">  “ 𝔜𝔬𝔲 𝔞𝔯𝔢, 𝔪𝔶 𝔥𝔢𝔞𝔳𝔢𝔫 𝔱𝔬𝔫𝔦𝔤𝔥𝔱 ˶
 <p align="center">     ᵖᶠᵖ ; @ᵈʳⁱᵉᵈᵖᵒᶜᵏᵉᵗˢ
