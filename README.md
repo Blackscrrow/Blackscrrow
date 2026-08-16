@@ -17,3 +17,5 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31tv4gs42hlcd2y7mz2oknspbfia&cover_image=true&theme=natemoo-re&show_offline=false&background_color=2f1d1d&interchange=false&profanity=false&hide_remaster=false&bar_color=a46060&bar_color_cover=false">
   </a>
 </p>
+<p align="center"> ⋮ ⌗ ┆ 𝘛𝘩𝘦 𝘰𝘯𝘦 𝘢𝘯𝘥 𝘰𝘯𝘭𝘺 𝘋𝘢𝘯𝘵𝘦 𝘚𝘱𝘢𝘳𝘥𝘢 𝘰𝘧 𝘗𝘰𝘯𝘺𝘵𝘰𝘸𝘯 ˙𐃷˙ 
+<p align="center">  𑣲. 𝑯𝒊 𝒕𝒉𝒂𝒏𝒌𝒖 me can
